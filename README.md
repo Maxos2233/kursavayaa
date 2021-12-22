@@ -1,0 +1,2 @@
+# kursavayaa
+MSU applications
